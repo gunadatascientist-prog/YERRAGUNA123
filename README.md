@@ -1,4 +1,4 @@
-# Hi there, I'm Yerra Guna Shekhar 👋
+# Hi there, I'm Yerra Guna Shekhar 
 
 **2024 ECE Graduate | Tech Enthusiast | Intern**
 
